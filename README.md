@@ -1,0 +1,2 @@
+"Deus, pátria, família"
+-🇧🇷
